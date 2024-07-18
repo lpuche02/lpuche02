@@ -20,4 +20,4 @@ Ingeniero Industrial con experiencia en liderazgo, auditoria, consultoria. Espec
 ### Contacto
 
 - **Email:** e.puche02@gmail.com
-- **LinkedIn:** www.linkedin.com/in/luis-emilio-puche-aguirre-
+- **LinkedIn:** https://lc.cx/OdQHuQ
